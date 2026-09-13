@@ -1,2 +1,2 @@
-# -_-___-
+ʙʟᴀᴄᴋ_ᴘᴀɴᴛʜᴇʀᴇ___ʀᴇᴄᴏʀᴅ : 𝕯𝖔𝖑𝖆𝖗~𝕮𝖊𝖗𝖛𝖊𝖆𝖚
 Production musicale: prise de voix, mixage, composition instrumental, décoration événementiel et organisation scène...
